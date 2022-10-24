@@ -101,3 +101,10 @@ O último grande evento que você vai querer conhecer é o Arnold Classic, que n
 Bodybuilding - conheça todas as 9 modalidades de fisiculturismo da atualidade
 Foto: (reprodução/internet)
 Assim, é o próprio ator que faz a entrega do prêmio. É uma espécie de rival do Mr. Olympia, sendo que também possui várias modalidades e categorias do esporte. O prêmio para o vencedor é um cheque de US$ 130 mil, um carro Hummer e um relógio Piguet. 
+
+
+
+Curiosidade – fisiculturismo natural
+A expressão tem sido muito falada, mas ainda gera dúvidas. O fisiculturismo natural foi criado no início dos anos de 1990 e reuni homens e mulheres que querem melhorar o corpo, mas sem o uso de anabolizantes ou hormônios.
+
+Para muitos especialistas, esse foi um nome inventado para valorizar as competições ligadas a ele. No entanto, o que se sabe é que as competições e as modalidades citadas acima também não permitem o uso de “substâncias proibidas” hoje em dia. 
